@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%FF5E2FFF&lines=Computer+science+student)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%FF5E2FF7&lines=Приветик!+Я+Анастасия+Recruiter+ФОДЖИН)](https://git.io/typing-svg)
